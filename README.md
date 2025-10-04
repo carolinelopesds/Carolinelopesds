@@ -1,4 +1,4 @@
-## # Bem-vindo(a) ao perfil de Carolinelopesds😁
+## # Bem-vindo(a) ao perfil de Carolinelopesds😁👋
 
  <div>
    <a href="https://github.com/devemdobro">
